@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Patrikk4377
-- 👀 I’m interested in Woman
 - 🌱 I’m currently HTML/VBA
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me @Patrikxy on instagram
